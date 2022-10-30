@@ -1,1 +1,0 @@
-# CenkTansoylu_TolgaSertkaya_SefaYiğitsoy_YağızKıvrak
